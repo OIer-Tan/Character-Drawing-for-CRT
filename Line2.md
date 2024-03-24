@@ -95,4 +95,4 @@
 
 我们倡导大家画出属于自己的 CRT 2，打败 QG 主义。
 
-_合作方：@OIer_Tan_
+_合作方：@chat_jinxuan_
